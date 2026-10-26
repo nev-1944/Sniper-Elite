@@ -232,4 +232,4 @@ Sniper Elite: Resistance is offered as a full free version with all features and
 Don't miss out on the action! Download Sniper Elite: Resistance today and immerse yourself in the thrilling world of WWII sniping.
 
 ---
-**Last updated:** 2026-10-26 18:57:53 UTC
+**Last updated:** 2026-10-26 23:02:19 UTC
